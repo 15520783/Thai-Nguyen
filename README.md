@@ -1,2 +1,0 @@
-# Thai-Nguyen
-UIT Student
